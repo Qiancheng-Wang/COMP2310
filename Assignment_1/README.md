@@ -1,0 +1,1 @@
+You do know Ass1 = 15% of the final mark. But you do not know how much a report values in this assignment. This is my code and report with an HD mark. 
